@@ -1,4 +1,4 @@
-## Hi there  We Sizzling developers are here to bring you guys Some amazing patforms that we've made till now!!👋
+## Hi there  We Sizzling developers are here to bring you guys Some amazing platforms that we've made till now!!👋
 
 <!--
 
